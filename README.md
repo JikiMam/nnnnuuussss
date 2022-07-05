@@ -1,2 +1,2 @@
 # nnnuuusss
-https://jikimam.github.io/nnnnuuussss/
+https://jikimam.github.io/nnnuuusss/
